@@ -3,6 +3,15 @@
 > **知乎版**：[一点零散的女权与境外势力勾结的证据](https://zhuanlan.zhihu.com/p/1937927699856331308)  
 > 您可以在[这里](https://github.com/command-group/ChineseFeminist/issues)投稿
 
+## 🕛2025年8月11日下午13点26分更新
+
+本人更新了武汉大学与各方势力勾结的证据
+
+**链接**：[https://command-group.github.io/ChineseFeminist/wuhandaxue/](https://command-group.github.io/ChineseFeminist/wuhandaxue/)
+
+![img](https://github.com/user-attachments/assets/5ce4a393-adbe-4711-b9ae-15f9c85f9916)
+
+
 ## 🕔2025年8月10日晚间18:58更新 
 
 ![img](./README.assets/v2-f98aae24a29bf5fc04a501083bb11487_1440w.jpg)
@@ -84,6 +93,7 @@
 下面的内容来源于：[极端女权的“邪教性”：不仅伤害女性，还危害国家安全！ - 红色文化网](https://link.zhihu.com/?target=https%3A//www.hswh.org.cn/wzzx/llyd/aq/2024-11-04/90863.html)
 
 ![image-20250810183653910](./README.assets/image-20250810183653910.png)
+
 
 
 
